@@ -1,3 +1,3 @@
 # QUEM EU SOU:
 
-eu sou a **erika** e sou nova aqui
+eu sou a **Erika Raiana** e sou nova aqui
