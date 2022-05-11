@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @erikaraiana
+# QUEM EU SOU:
 
 eu sou a **erika** e sou nova aqui
